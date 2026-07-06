@@ -1,4 +1,4 @@
-# 
+# Último deribit trading bot flujo de trabajo for Mac OS | Profesional deribit trading bot flujo de trabajo for PC Windows. Featuring API de intercambio descentralizado and pools de liquidez DEX — optimized for maximum performance.
 
 
 
